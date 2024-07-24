@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...well idk for sure am a new here so just lets make myself comfortable with the environment first.
 - 📫 How to reach me ...just dont until further notice:)
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...I dont enjoy the time I spent sleeping at all! 
+- ⚡ Fun fact: ...I dont like the time I spent sleeping at all! 
 
 <!---
 pembro1/pembro1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
